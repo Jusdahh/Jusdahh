@@ -1,4 +1,4 @@
-## Oiie! Eu sou o Ueld Judah
+## Oii! Eu sou o Ueld Judah
 
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=Jusdahh&color=yellow" alt="Profile views" /> </p>
 
